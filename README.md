@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @inoCcCent77
-- 👀 I’m interested in crypto
+- 👀 I’m interested in cryptocurrencies
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on Linea Entertainment Festival 
 - 📫 How to reach me ...
